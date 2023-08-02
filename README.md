@@ -1,6 +1,6 @@
 # Консольная игра "Сапер"
 
-![Сапер](https://pimg.mycdn.me/getImage?url=http%3A%2F%2Fi.mycdn.me%2Fimage%3Fid%3D927708830071%26ts%3D0003000000000002800140%26plc%3DUNKNOWN%26tkn%3D*892-UsBcIVuH9-t119VfnC_Mfio%26fn%3Dtopic_link_1080&type=TOPIC_LINK_WIDE_548&signatureToken=vzlVZGKSe288nJRRx3gljA)
+![Сапер](https://slotobzor.com/wp-content/uploads/2018/05/Nastolnaya-igra-Sapyor-375x195.jpg)
 
 ## Обзор
 
